@@ -1,1 +1,1 @@
-no be small coding o
+coding with grit in my teeth
